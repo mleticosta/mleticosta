@@ -18,7 +18,7 @@
 
 - [O maior ativo subutilizado da sua empresa: os dados](https://www.linkedin.com/pulse/o-maior-ativo-subutilizado-da-sua-empresa-os-dados-costa-6kwqf/?trackingId=F%2F9%2F015WTQ2Gum%2BYrAT%2B1w%3D%3D)
 
-Atualmente, cursando o MBA em Ciência de Dados e Inteligência Artificial, com foco no desenvolvimento de soluções analíticas e apoio à tomada de decisões estratégicas. 🧠
+Atualmente, cursando minha segunda graduação, Tecnólogo em Banco de Dados, com foco no desenvolvimento de soluções analíticas e apoio à tomada de decisões estratégicas. 🧠
 
 Tenho paixão por tecnologia e amo compartilhar minha visão. ✍️
 
